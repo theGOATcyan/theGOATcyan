@@ -1,4 +1,4 @@
-$\color{cyan}{\text{ + JSAB KINS PLS ALWAYS INT, IDC IF YOU’RE CORRUPTED OR PURE PLS INT PLS }}$
+$\color{cyan}{\text{ + JSAB KINS PLS ALWAYS INT, IDC IF YOU’RE CORRUPTED PLS INT PLS }}$
 
   
 $\color{cyan}{\text{ + -13 iwc, +20 iwc}}$
