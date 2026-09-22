@@ -1,4 +1,4 @@
-![visitors](https://visitor-badge.laobi.icu/badge?page_id=username.visitor-badge&left_text=shapes&left_color=%2352d6fc&right_color=%23e63b7a&format=true)
+![visitors](https://visitor-badge.laobi.icu/badge?page_id=username.visitor-badge&left_text=shapes&left_color=%2352d6fc&right_color=%23e63b7a)
 
 $\color{cyan}{\text{ + JSAB KINS PLS ALWAYS INT, IDC IF YOU’RE CORRUPTED PLS INT PLS }}$
 
